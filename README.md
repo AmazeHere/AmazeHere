@@ -1,13 +1,13 @@
 - 👋 Hi, I’m Amaze
 - 📫 How to reach me ...
 
-###Discord : Amaze#9464
+## Discord : Amaze#9464
 
-###Twitter : [@AmazeTwitter](https://twitter.com/AmazeTweeter?t=o68dd4H3AOVwlAQAmWSpQw&s=09)
+## Twitter : [@AmazeTwitter](https://twitter.com/AmazeTweeter?t=o68dd4H3AOVwlAQAmWSpQw&s=09)
 
-###Xbox : AmazeMCPE 
+## Xbox : AmazeMCPE 
 
-###Github : 💀 
+## Github : 💀 
 
 
 <!---
