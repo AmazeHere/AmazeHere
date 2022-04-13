@@ -3,7 +3,7 @@
 
 ## Discord : [@Amaze#9464](https://discordapp.com/users/900793535828197446)
 
-## Twitter : [@AmazeTwitter](https://twitter.com/HereAmaze?t=vV00i5uvnTUm2C8dVraeBw&s=09)
+## Twitter : [@AmazeHere](https://twitter.com/HereAmaze?t=vV00i5uvnTUm2C8dVraeBw&s=09)
 
 ## Youtube : [@AmazeYT](https://youtube.com/channel/UC2BVAgUxWKpOSMRnjVUEdLQ)
 
