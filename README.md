@@ -13,5 +13,6 @@
 
 ## Github : 💀 
 
+## More : [More Socials](https://linktr.ee/amazelinks)
 
 # ***Mostly Active on Discord And YouTube***
