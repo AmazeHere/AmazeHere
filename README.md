@@ -9,10 +9,10 @@
 
 ## Reddit : [@AmazeReddit](https://www.reddit.com/u/AmazeReddit?utm_medium=android_app&utm_source=share)
 
-## Xbox : @AmazeMCPE 
+## Xbox : @xAqaze
 
 ## Github : 💀 
 
 ## More : [More Socials](https://linktr.ee/amazelinks)
 
-# ***Mostly Active on Discord And YouTube***
+# ***Mostly Active on Discord,YouTube and twitter***
