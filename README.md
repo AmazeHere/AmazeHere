@@ -1,7 +1,7 @@
 - 👋 Hi, I’m Amaze
 - 📫 How to reach me ...
 
-## Discord : [@Amaze#9464](https://discordapp.com/users/900793535828197446)
+## Discord : [@Amaze#5505](https://discordapp.com/users/900793535828197446)
 
 ## Twitter : [@AmazeHere](https://twitter.com/HereAmaze?t=vV00i5uvnTUm2C8dVraeBw&s=09)
 
