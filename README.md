@@ -1,5 +1,1 @@
-# Discord : [@Amaze#5505 or @amazehere](https://discordapp.com/users/900793535828197446)
-
-
-
-
+# Discord : [@xaqaze](https://discordapp.com/users/1191421215626248232)
